@@ -2,4 +2,4 @@
 
 Le mie ricette preferite
 
-* spaghetti olio. aglio e peperoncino
+* spaghetti aglio, olio e peperoncino
