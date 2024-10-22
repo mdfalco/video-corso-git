@@ -4,5 +4,5 @@
 
 * penne
 * uova
-* pancetta
+* guanciale
 * pepe nero
